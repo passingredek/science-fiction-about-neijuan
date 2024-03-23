@@ -1,0 +1,11 @@
+In ancient times, humans were able to become the top of the food chain in large part because they worked together to deal with natural predators and extract food and resources from the natural world. Now, humans seem to have no natural predators, so there is insufficient motivation to work together, and in most cases, people compete with each other for resources.
+
+Even if there are enough resources to ensure the survival of everyone, humans have a higher need for self-realization than others, and competition among people for rankings is inevitable. When a ranking competition among humans becomes meaningless and is only for ranking, then in-fighting occurs.
+
+Since qualifying is inevitable, why not innovate the competition mechanism? Or, create a common enemy (unknown to science, engineering, agriculture, and medicine) and compete to see who contributes the most to the study of natural sciences. Whether it's money, effort, or brainpower, as long as you break through the boundaries of existing knowledge, you can win the qualifying competition and achieve self-realization, fame, and excess profits. The winning result will inevitably lead to open source discussion, questioning, and overthrowing, overthrowing, questioning, discovering, discussing...
+
+You may think that only a small number of outstanding scientists can guide the direction of cutting-edge issues in natural science, but I believe that the bloated nature of language (in addition to traditional language, including knowledge systems of various disciplines and their education systems and screening mechanisms) limits the dissemination of knowledge. The lack of educational resources objectively results in few students receiving higher education (new inspiration), while rigid screening mechanisms only test the mastery of past knowledge.
+
+The education and screening system has made it not a relay race to build tall towers, but a competition to see who can build the tallest tower.
+
+In an extreme imagination, if the first class of freshmen is how to use intelligent devices such as calculators and GPTs, junior high school students are allowed to use calculus on computers, and computers, the Internet, and big language models are allowed to help answer questions in entrance examination. Will it open up a new world?
